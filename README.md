@@ -1,7 +1,7 @@
 <h2 align="center">
     ──「 ᴋʀɪsʜ ダ ᴍᴜsɪᴄ 
 <p align="center">
-  <img src="https://i.ibb.co/2FSqhSr/photo-2024-09-19-18-33-46-7416425646991081500.jpg">
+  <img src="https://i.ibb.co/G9qRnvf/photo-2024-10-23-16-31-02-7429537155648585828.jpg">
 </p>
 
 <h3 align="center">
