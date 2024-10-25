@@ -7,7 +7,7 @@
 <h3 align="center">
     ─「 ᴄᴏɴɴᴇᴄᴛ ᴀɴᴅ  ᴅᴇᴩʟᴏʏ ᴏɴ ʜᴇʀᴏᴋᴜ
     
-      mumber txt mein Apne user ka ID pesh kar do then run」─
+      mumber txt mein Apne user ka ID past kar do then run」─
 
        kids tumse nhi ho payega 
 </h3>
